@@ -1,1 +1,1 @@
-# yuanzhang_yuna.github.io
+Map of My Favorite Destinations
